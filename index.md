@@ -1,2 +1,2 @@
-# Welcome!
-This is a website for anything related to the roleplay!
+# Characters
+Here are characters from the series!
